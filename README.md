@@ -8,7 +8,7 @@
 <br>
 <br><img src="https://i.postimg.cc/bvcsMGsC/Untitled1094-20240909115922.png" width="350px">
 <br>
-<br><br>  ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ b𝙨𝙮𝙨od — blue/ace/spades ㅤ ⌓ 𓂂
+<br><br>  ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ b[𝙨𝙮𝙨]od — blue/ace/spades ㅤ ⌓ 𓂂
 <br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ he/any  ⟢ ﹕ 19  ͙͘͡★
 <br> ‿whisper to int otherwise i'll miss the message :> .ᐟ⋆
 <br> ▸ ♡ normally sittin' with <a href="https://github.com/Sharksters">sharkie</a> or <a href="https://github.com/OFFICERCHAMBERS">rhys</a> ^o^  .ᐟ.ᐟ
