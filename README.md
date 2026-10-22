@@ -19,7 +19,7 @@
 <br> ✶࿐ just don't be weird, honestly. :/ ‿
   <br> ◠ on the rare occasion im on safe, please limit interactions if you're under 16. . . ✦ 
 <br>
-<br> ︶︶ <a href="https://bsky.app/profile/bluscreened.bsky.social">𝙗𝙨𝙠𝙮</a> // <a href="https://www.tumblr.com/6x6x6x1">𝙩𝙪𝙢𝙗𝙡𝙧</a> // <a href="https://toyhou.se/bluescreened">𝙩𝙤𝙮𝙝𝙤𝙪.𝙨𝙚</a> ︶︶
+<br> ︶︶ <a href="https://github.com/lvnlmnt">please go look at this github its actually updated and looks pretty /silly</a>  ︶︶
 <br>
 <br><img src="https://i.postimg.cc/bvcsMGsC/Untitled1094-20240909115922.png" width="350px">
 <br><br></b> > ❝ It's 𝐒𝐄𝐄𝐃𝐈𝐍𝐆 in my 𝙑𝙀𝙄𝙉𝙎 . . .
